@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @TeT-A
+- 👀 I’m interested in Computer science,Video Games like Dota2,CS
+- 🌱 I’m currently learning Front-End Development
+- 📫 How to reach me : AmirhosseinTet.a (instagram)
+- 😄 Pronouns: He/Himh
+- ⚡ Fun fact: Playing for 10 years and Just being average player in all games.
